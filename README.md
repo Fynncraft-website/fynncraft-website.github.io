@@ -1,1 +1,0 @@
-# fynncraft-website.github.io
